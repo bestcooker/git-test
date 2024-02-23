@@ -1,1 +1,1 @@
-soyo.best
+soyorin is best
